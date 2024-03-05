@@ -35,6 +35,17 @@
 - The application acting as a product, required thorough analysis of many points including multiple use cases and automation features, all of which are completely thought of by understanding the dealership ecosystem.
 - You can access my work [here](https://drive.google.com/file/d/1EkWsI8gPP-V9gD3gk6HA63gpPNPGLUGq/view?usp=sharing)
 
+### Project Management Internship
+
+- Conducted a comprehensive analysis of the company's organizational structure and supply chain, resulting in tailored reports for each department
+- Collaborated with multiple departments to ensure the reports met their specific needs
+- Provided crucial support to department executives with ongoing projects
+- Shadowed a supervisor on a project related to the ITC group of hotels, gaining a holistic understanding of diverse business processes
+- Developed expertise in project lifecycle management, supply chain operations, and statutory compliance
+- Built strong networking capabilities through meaningful interactions with professionals at all organizational levels
+- Equipped with a well-rounded skill set and a deep appreciation for effective cross-functional collaboration
+- You can access the comprehensive analysis of the organization [here](https://drive.google.com/file/d/12YW7V3otXFn5DewU-v5V4nGHhm085bTh/view?usp=sharing)
+
 
 
 
